@@ -3,7 +3,7 @@
 - 🌱 I’m currently learning ...Android Java & FLUTTER
 - 💞️ I’m looking to collaborate on ...
 - 📫 How to reach me ... 
-Insstagram: ahmedzaidi17
+Instagram: ahmedzaidi17
 Facebook: Muhammad Ahmed Zaidi
 
 
